@@ -1,1 +1,5 @@
-# dynamic-dude.github.io
+# Dynamic Dude
+
+### Quick OverView Webpage 
+
+_Stay Connected_
